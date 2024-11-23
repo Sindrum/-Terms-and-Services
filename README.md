@@ -69,8 +69,8 @@ These terms may be updated periodically. Continued use of the Bot indicates your
 
 ### **8. Contact**
 For questions, concerns, or support, contact us at:  
-Email: [your-email@example.com]  
-Website: [Insert Link]
+Email: youngsizzler420@outlook.com  
+Website: 
 
 ---
 
